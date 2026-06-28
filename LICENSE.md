@@ -1,4 +1,4 @@
-# 
+# Profesional sushiswap trading bot scripts for Mac OS | Premium sushiswap trading bot scripts for PC Windows. Featuring API de intercambio descentralizado and pools de liquidez DEX — optimized for maximum performance.
 
 
 
